@@ -29,6 +29,10 @@ When the app is running, hover over the right side of the lyrics to reveal the s
 
 
 
-https://github.com/user-attachments/assets/0fcdc016-27e8-4925-9ab3-88516468cb2d
+
+
+https://github.com/user-attachments/assets/06460c96-da90-4f53-a2ed-5644530a9374
+
+
 
 
